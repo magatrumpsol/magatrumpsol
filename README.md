@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...any politifi meme projects to enrich the culture of memes together
 - 📫 How to reach me ... https://x.com/trumpsolmaga?s=21&t=gy7aFv4johr2nAWjly9OtA  https://www.trumpmaga.ca/
 - 😄 Pronouns: ...alpha leader
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...the cabel is trying to cancel me, they don't want me to maek amuraca graet agun
 
 <!---
 magatrumpsol/magatrumpsol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
